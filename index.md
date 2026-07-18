@@ -354,3 +354,17 @@ På vägen till [[Röda Rosen (Bordell)]] berättar Bård för Corym om hur barn
 
 När de väntar så dyker [[Emilion (Prostituerad)]] upp. Han är charmig, speciellt mot Chase, men tappar detta när han får veta om [[Jenny (Prostituerad)]]s död. Han berättar att han hört genom väggen hur [[Jenny (Prostituerad)]] blivit påtvingad en ny drog av mannen som var i rummet. Han börjar prata med Corym och beskriver hur han gillar att måla, framförallt skogar och växter. Han tar med henne till sitt rum och visar. En specifik tavla intresserar Corym. Men när hon kommer nära så svimmar hon. Hon vaknar upp inuti tavlan. Hon får uppleva hur hon förvandlas till odöd såsom [[Jenny (Prostituerad)]], och hur allt hon rör vid dödar växterna och det levande. När hon vaknar upp stormar hon iväg upprörd. [[Emilion (Prostituerad)]] får ett slag av Chase som tror han gjort något mot Corym. Bård och Chase jagar efter Corym som till slut slår sig ner vid ett träd i en park. De har svårt att förstå Corym som anser att de bör lämna henne, för allt hon rör vid dör.
 
+# Session 20 (20/17/329)
+
+Skrivs efter sessionen...
+
+# Session 21 (20/17/329-20/17/329)
+
+Striden fortsätter med att Bård skickar in ett eldklot som tänder eld på vagnen. De hoppas att elden ska förstöra serumet såsom det satte stopp för [[Vox’nan Alderman (Löjtnant)]] i hans laboratorium. Men under den fortsatta striden så öppnar kaptenen av gråkapporna luckan till transporten, till allas förvåning så är det tre individer som befinner sig i vagnen, Laura känner sitt blod i dem, och kaptenen utbrister ”rädda de frälsta, mot skeppet!”, men varken gråkapporna eller de infekterade individerna kommer särskilt långt. 
+
+Gruppen lyckas göra två av gråkapporna medvetslösa, och de icke-förvandlade individerna övertalas att följa med. Åtminstone Soren som fortfarande är vid medvetande. För gruppen tar med sig totalt fem, varav fyra medvetslösa individer till tavernan. Men innan de går provar Corym att kasta Lesser Restoration på de infekterade men ännu inte förvandlade - detta tycks hjälpa! För Larah känner inte längre den pulserande känslan av hennes blod i dem, har de hittat ett sätt att stoppa infektionen från att ta fäste? 
+
+När de pratar med Soran så berättar han hur [[Fader Silvan]] lovat dem frälsning - ett namn gruppen känner till då de stulit diverse reliker och heliga vapen från hans kyrka i [[Brorudun (Staden)]]. Detta stärker gruppens misstankar om kyrkans inblandning i konspirationen. 
+
+Nu befinner sig gruppen i tavernan, i deras rum, trångt packat, finns två medvetslösa gråkappor, två medvetslösa civila, Soren, och hela gruppen. Vad blir nästa steg för Aeirons hjältar?
+
