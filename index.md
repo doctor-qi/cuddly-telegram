@@ -1,3 +1,59 @@
+# Session 24 (21/17/329-23/17/329)
+
+Gruppen rider ut ur [[Brandeer (Staden)]] mot [[Alora (Staden)]], en resa som kommer ta två dagar ifall de rider snabbt. Vägen leder dem upp för en bergskedja. De hinner passera toppen innan de måste slå läger för natten. Det är kallt och blåsigt, och över [[Alora (Staden)]] ser de små gröna sken som blinkar till i staden - det kan inte båda väl.
+
+De pratar om hur de inte har någon plan, att de borde skapa en. Efter lite diskuterande fram och tillbaka lyckas de inte enas om en plan - och går istället med den beprövade "det brukar lösa sig" och "vi gör som vi alltid har gjort".
+
+Plötsligt dyker ett myller upp på himmeln, tusentals fåglar flyger över deras huvuden, bort från [[Alora (Staden)]]. Tyvärr för högt upp för att de ska kunna fråga dem vad de flyger ifrån, men Corym skickar ut Kotten som hittar en kanin. Den berättar att något känns fel i den riktningen, och kaninen har valt att bege sig åt andra hållet. Den har även sett hur människor rest sig ur marken.
+
+Under den andra dagen rider de innan gryning nedför berget, på vägen stöder de på 3 gravar - men bara 2 av dem är tomma. Den tredje tycks orörd, och efter att Corym undersökt den lite närmare så konstaterar hon att den frusen krans som bildar en symbol för hennes gudinna [[Mielikki (Skogsgudinnan)]] ligger på den ostörda graven.
+
+När de kommit ner för berget så stöter de på en odöd som ber dem binda fast honom. Aeiron är snabb och lyckas binda ett rep runt hans fötter, och fast i ett träd. Han förklarar att han inte har någon kontroll över sin kropp - att den rör sig av sig själv. Hans namn är Markus, en handelsresande som varit på väg från [[Brandeer (Staden)]] till [[Alora (Staden)]] när han insjuknade och... han minns inte mer. Men han är tacksam för att gruppen hjälpt honom.
+
+Gruppen vill få honom att förstå att han är odöd, han har ingen puls, och när de skär honom så kommer inget blod. Konstigt medger Markus, men han känner sig levande, bara oförmögen att kontrollera sin kropp. En dispell magic från Bård får kroppen att sluta försöka röra sig iväg, tacksamt ligger nu Markus stilla och försöker vicka på sin stortå. Corym provar Turn Undead vilket ska få honom att röra sig bort från henne - vilket både Larah och hennes häst måste försöka stå emot, vilket de lyckas.
+
+Gruppen ställer sig i en cirkel en bit ifrån Markus för att diskutera vad de ska göra. Bård vill inte lämna honom där, utan föreslå att de tar med honom. De andra i gruppen är inte helt övertygade. Men när de vänder sig om så ser de att Markus är helt död igen, en något fördröjd effekt av den Turn Undead Corym gjorde.
+
+De närmar sig Alora och passerar ett skogsparti, en karavan rör sig emot dem, de gömmer sig i skogen bakom en stor sten. Men när Corym ser att de inte ser farliga ut, hoppar hon fram för att hälsa. En man stannar och pratar med henne. De är ett trettiotal personer som packat sina tillhörigheter för att fly till [[Brandeer (Staden)]]. Under natten har nämligen de döda återuppstått, klättrat ur sina gravar. Hans svärfar som hade gått bort under kvällen reste sig plötsligt och gick ut ur huset till allas förskräckelse. Corym ger dem några symboler hon skapat av rep som ska skydda dem, han tackar och de fortsätter gå. Gruppen rör sig vidare mot [[Alora (Staden)]].
+
+På vägen in i staden så ser de en bondgård som ser livlös ut, övergiven. Trots att den är välskött så saknas både djur och bönder. De passerar en mindre kyrka, och ser hur gravarna är uppgrävda och tomma. Inne i staden ser de människor som spikar för fönster, några som är i chock, och en stor eld där de tycks bränna kroppar. När de är på väg ut ur staden igen så noterar Corym och Aeiron att de kroppar som en gång hängt längst vägen är borta, repen avskurna.
+
+Hästarna är trötta, och det börjar bli sent. De väljer att ta in på en taverna vid utkanten av staden. Hästarna är rädda, men Corym lyckas lugna dem. På tavernan har Frankie och Bård ett djupt samtal. Om hur Bård inte tyckte det var rätt att döda Markus - var han inte en person? Kroppen kanske inte lydde honom, men var det rätt att döda honom (igen)? Frankie pratar om sin ilska som driver henne, och om hennes barn. Om rädslan över att möta dem i armén - vad skulle hända då? Hur skulle hon känna?
+
+Återigen, tidigt på morgonen dagen därpå ger de sig iväg i förhoppningen om att rida ikapp den odöda armén. Plötsligt börjar hästarna sakta in, som om de inte vill längre fram. De kommer fram till ett krön och förstår plötsligt varför. I dalen nedanför dem ser de tusentals odöda marscherande mot [[Merino (Staden)]]. Plötsligt stannar armén, de urskiljer [[Herio Blade (Kapten)]] på en häst, han lyfter en stav och ett grönt sken pulserar ut. Han sänker handen. Tusentals huvuden vrids samtidigt, inte mot staden, utan mot er. Långsamt lyfter han blicken, och trots avståndet är ni säkra på en sak. Han ser er.
+
+# Session 23 (21/17/329-21/17/329)
+
+Vi börjar sessionen med att gruppen skickar ett meddelande till [[Daria Merisio (Vampyr-magiker)]] och ber henne öppna en portal som kan ta dem tillbaka till [[Brandeer (Staden)]]. Medan de väntar på att portalen ska öppnas pratar Aeiron och Bård om huruvida en enda person verkligen kan göra någon skillnad mot en hel armé. Aeiron menar att det egentligen inte spelar någon roll vilka oddsen är – hans vänner är där, och därför måste även han stå vid deras sida.
+
+Efter en stund öppnas portalen och gruppen kliver igenom. På andra sidan väntar [[Daria Merisio (Vampyr-magiker)]].
+
+Gruppen försöker hastigt förklara situationen: de måste omedelbart vidare till [[Merino (Staden)]], de behöver veta vad Darias experiment har avslöjat, och de har dessutom haft visioner av en odöd armé som marscherar mot Merino. Daria är minst sagt förvirrad av allt och tvingar dem att ta en sak i taget.
+
+Det första gäller experimenten. Har de lett till någon upptäckt?
+
+Daria berättar att serumet från [[Vox’nan Alderman (Löjtnant)]] tycks bete sig på ett sätt som påminner om vampyrblod. När vampyrblod kommer in i en levande kropp angriper det de röda blodkropparna och sprider sig tills det helt har tagit över kroppen och förvandlat personen till en vampyr. Serumet verkar följa samma grundläggande princip, men innehåller samtidigt egenskaper från flera olika varelser – som en slags cocktail.
+
+[[Miranda (Prostituerad)]]s immunitet verkar däremot hindra processen redan från början. Serumet lyckas aldrig ta sig in i hennes röda blodkroppar och får därför inget riktigt fäste. Darias försök visar också att det verkar vara möjligt att stoppa både vampyrism och serumets påverkan så länge förändringen fortfarande pågår. När förvandlingen väl är fullständig tycks det däremot inte längre gå att återställa personen.
+
+Under tiden smiter Bård iväg för att prata med [[Miranda (Prostituerad)]]. Han hittar henne på sitt rum, klädd i nattlinne, och hon bjuder in honom i sin kammare. Där inne upptäcker Bård att kärleksbrevet han tidigare gav henne fortfarande ligger oöppnat på ett skrivbord.
+
+De börjar prata om det som väntar och om känslan av att stå ensam mot en övermäktig fiende. [[Miranda (Prostituerad)]] drar paralleller till sin egen kamp mot gråkapporna under tiden i motståndsrörelsen. Samtalet blir personligt, men brevet förblir oöppnat. Innan Bård lämnar rummet lyckas han ta tillbaka det.
+
+När gruppen åter samlas försöker Daria öppna portaler till [[Merino (Staden)]], [[Orello (Staden)]], [[Willma (Staden)]] och [[Alora (Staden)]], men samtliga försök misslyckas. Den mest sannolika förklaringen är att teleportationscirklarna har förstörts. Det var en vanlig försvarsåtgärd under kriget – om en stad riskerade att falla kunde man förstöra sin cirkel för att förhindra att fienden använde den för att ta sig in bakom försvarslinjerna.
+
+Utan fungerande portaler återstår bara landvägen.
+
+Gruppen lyckas få tag på hästar och räknar ut att de, om de rider hårt, kan nå [[Alora (Staden)]] på ungefär två dagar. Därifrån hoppas de kunna fortsätta mot [[Merino (Staden)]] och hinna ikapp den odöda armén.
+
+Hur långt armén redan har hunnit vet de däremot inte.
+
+Det är möjligt att de hinner fram före den.
+
+Det är också möjligt att de redan är för sent ute.
+
+Det återstår att se nästa gång.
+
 # Session 22 (20/17/329-21/17/329)
 
 Vi finner gruppen packade som sardiner i ett av tavernans rum. I det finns 3 fritagna och botade fångar - 2 av dem är medvetslösa, den sista är Soren som är vid medvetande. Det finns även 2 tillfångatagna gråkappor, båda medvetslösa. Den ena är äldre - gruppens ledare. Den andra en yngre medlem. Utöver dessa individer befinner sig resten av gruppen intryckt i rummet.
