@@ -1,3 +1,17 @@
+# Session 25 (23/17/329-23/17/329)
+
+Efter att armén vänt blickarna mot dem uppe på klippan så backar gruppen sakta bakåt. Ett grönt sken igen, och armén marscherar vidare mot [[Merino (Staden)]]. Gruppen samlar sig för att prata, nämner staven de sett, och armén, och vad de ska göra nu. Plötsligt hör Bård ett krafsande ljud och ber gruppen vara tyst. Aeiron som ser hur Bård tittar mot klippans kant och springer fram för att kika, plötsligt dyker en stor benig hand upp över kanten, och en stund senare står två monster av ben vid klippkanten. En strid utbryter!
+
+I striden råkar Coryms turn undead tvinga Larah att springa iväg från striden, och Frankie lyckas inte knuffa ner det stora monstret för klippan på grund av sin ringa storlek. Under striden noterar de också hur en bit bakom armén en vagn dras av två odöda hästar. Två vakter går längst dess sida, och för ett ögonblick där tygstycket lyfts av vinden skymtar de en blek kvinna i vit klänning och vitt långt hår. Striden fortsätter men allteftersom så lyckas de hitta de odödas svagheter, och har ihjäl de fem (egentligen sex) odöda de slagits mot genom att krossa deras ben, och knuffa dem ner för stupet. Corym upptäcker även att hon kan stoppa de odöda genom att låta sin magi flöda genom de symboler hon skapat när hon håller dem mot de odöda. Tre av de mänskliga odöda visar sig också olika, där den ena varnar dem och ber om ursäkt, den andre beter sig som om de vore soldater från Witundan, och den tredje tycks inte säga någonting.
+
+Efter striden bestämmer de sig att genskjuta armén, och rida i förväg för att varna och förbereda [[Merino (Staden)]] på det stundande anfallet. Men innan dess anländer de i [[Willma (Staden)]]. Corym och Aeiron känner igen sig, och när de kommer in i staden möts de av ett välkänt ansikte, nämligen [[Blanche Paladista (Polischef)]]. Hon förklarar att hon positionerats för att hålla utkik efter armén och rida till [[Merino (Staden)]] så snart hon skymtat den. [[Olof Stenhammar]], [[Freidrich Lyttken (Befäl)]], och [[Balric (Mentor)]] har begett sig till [[Merino (Staden)]] för att bereda staden för det stundande anfallet.
+
+Trots att de flesta i staden har utrymts så finns det några få kvar som vägrat lämna, bland annat [[Gammel-Anno]]. Gruppen väljer att dela upp sig, några beger sig till [[Levande Lutan (Butik)]] för att övertyga [[Gammel-Anno]] att följa med till [[Merino (Staden)]]. Corym och Larah beger sig till trädet utanför teatern för att försöka få vägledning av [[Mielikki (Skogsgudinnan)]] kring hur de ska kunna besegra en armé av odöda. 
+
+Bård som är en rackare på att övertyga folk lyckas få den blinde och gamle [[Gammel-Anno]] att följa med, han får rida på Aierons häst. 
+
+Vid trädet som hunnit växa sig lika högt som Corym, sätter hon sig ner för att försöka få kontakt med sin gudinna. Larah tycks mest störa när hon försöker fokusera och be till sin gud. Kommer hon få något svar? Om några timmar är armén i [[Willma (Staden)]] för att fortsätta mot [[Merino (Staden)]], och skymningen närmar sig.
+
 # Session 24 (21/17/329-23/17/329)
 
 Gruppen rider ut ur [[Brandeer (Staden)]] mot [[Alora (Staden)]], en resa som kommer ta två dagar ifall de rider snabbt. Vägen leder dem upp för en bergskedja. De hinner passera toppen innan de måste slå läger för natten. Det är kallt och blåsigt, och över [[Alora (Staden)]] ser de små gröna sken som blinkar till i staden - det kan inte båda väl.
